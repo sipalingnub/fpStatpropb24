@@ -1,1 +1,0 @@
-ini adalah kerja irul
